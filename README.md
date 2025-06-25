@@ -9,7 +9,7 @@
 </p>
 
 <h3 align="center">
-  Hi there! 👋 I'm Marron Mw
+  Hi there! 👋 I'm Maranatha James Ndege
 </h3>
 
 <p align="center">
